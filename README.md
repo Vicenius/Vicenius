@@ -1,0 +1,6 @@
+- 👋 Opa, me chamo Vinícius, mas pode me chamar de $crim ou Vicenius
+- 👀 Estou interessado em aprender mais sobre linux e python
+- 🌱 Atualmete estou fazendo curso de Linux pela Udemy
+- 💞️ Estou querendo colaborar com o que eu puder
+- 📫 @vinilushe Insta
+- ⚡ Fato: Criatividade quase zero mas me esforço pra ter kkk
